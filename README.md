@@ -8,3 +8,4 @@
 - 📫 How to reach me: kanishkbarhanpurkar@yahoo.com
 - ⚡ Peace Time: My Amazon Kindle  + A cold beverage + Serene Environment 
 
+My Favourite Quotes: If you make yourself more than just a man. If you devote yourself to an ideal. You'll become something else entirely.
